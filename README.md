@@ -1,1 +1,0 @@
-# UKKLV2_NUH_HASIF_IFTIHAR_Digital-Architect-portofolio_XRPL2
